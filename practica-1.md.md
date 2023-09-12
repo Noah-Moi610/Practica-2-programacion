@@ -6,6 +6,7 @@
 - Altura: 1.75 mts
 - Peso 69 kg
 - Nacionalidad: Mexicana 
+- Tatuajes: 2 (proximamente mas XD)
 
 !(https://instagram.fmex5-1.fna.fbcdn.net/v/t51.2885-19/367013945_1235125377156566_1333645571797740551_n.jpg?stp=dst-jpg_s320x320&_nc_ht=instagram.fmex5-1.fna.fbcdn.net&_nc_cat=102&_nc_ohc=T6ki7EH6F0oAX-1GiWt&edm=AOQ1c0wBAAAA&ccb=7-5&oh=00_AfBlcSrmMVitwRy4IUbxftYUhdaB2vKpkh9fsE9M0cvusw&oe=64FA9B8C&_nc_sid=8b3546)
 
