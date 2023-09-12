@@ -7,4 +7,5 @@
 - [Mis pasatiempos](practica-1.md.md#mis-pasatiempos) 
 - [Las 10 montañas son:](practica-1.md.md#las-10-montañas-son)
 - [Mis redes](./practica-1.md.md/#mis-redes)
+- [Mis interes a futuro](practica-1.md.md#mis-intereses-a-futuro)
 
