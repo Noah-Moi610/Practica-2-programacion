@@ -32,6 +32,11 @@ Hablar de ellos me tardaría, pero todos ellos me fascinan por el hecho de ser d
 
 Mi mas reciente actividad es el alpinismo, siempre me llamaron la atención de querer escalar una montaña y ahora que ya lo cumplí no puedo dejar de querer ir por mas montañas, actualmente me propuse a querer hacer el reto: "_las 10 de México_", ¡un desafio donde consiste en escalar las 10 montañas mas altas de México!.
 
+---
+### Mis intereses a futuro
+Tengo la intención de graduarme y conseguir un trabajo de lo que estudié y ser excelente en lo que hago, viajar y conocer el mundo con muchas aventuras extremas y peligrosas.
+>tener el mundo bajo mis pies!
+
 [Volver al temario](README.md)
 
 #### Las 10 montañas son:
